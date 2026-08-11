@@ -1,1 +1,0 @@
-# site-taslik-majari-riyadh
